@@ -7,3 +7,5 @@
 ![block dia](https://github.com/prakashnayak2003/vsd_workshop/assets/160585019/571e848d-7f42-4666-b087-5712ef4ad9c1)
 ![block dia 3jpeg](https://github.com/prakashnayak2003/vsd_workshop/assets/160585019/feb9afa2-1a2c-45ef-938f-f5e299057b18)
 ![block dia 4](https://github.com/prakashnayak2003/vsd_workshop/assets/160585019/61d5d1d0-c650-4cec-ab62-f9a4fe90e983)
+![t1](https://github.com/prakashnayak2003/vsd_workshop/assets/160585019/256ce00c-4b3c-42c9-beca-2b11a32e7a3a)
+![t2](https://github.com/prakashnayak2003/vsd_workshop/assets/160585019/0e7e6aa2-9ab0-47c0-81ca-9a28081ccfad)
